@@ -1,4 +1,4 @@
-Privacy Policy For The Ciudad App
+Privacy Policy For The Ciudades App
 
 The Ciudad App ("we," "our," or "us") is committed to protecting and respecting your privacy. This policy outlines how we collect, use, and safeguard your personal information when you use our mobile application (the "App").
 
